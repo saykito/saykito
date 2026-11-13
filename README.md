@@ -30,4 +30,4 @@ Je recherche un **stage de 2e année** d'avril à août 2027 (2 mois minimum), e
 
 ## Langues
 
-Arabe (langue maternelle), français et anglais (courant), allemand (intermédiaire).
+Français (langue maternelle), arabe et anglais (courant), allemand (intermédiaire).
